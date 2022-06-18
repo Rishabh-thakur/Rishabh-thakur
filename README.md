@@ -1,4 +1,4 @@
-Hii Everyone,There's Rishabh Singh👩🏼‍🎓 here
+Hii Everyone,Rishabh Singh👩🏼‍🎓 here
 Currently I am a student hoping to ✍🏼learn and 🕺🏼grow with time 
 
 I am pursuing my Bachelor of Engineering in Computer Science Engineering 
